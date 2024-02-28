@@ -1,0 +1,1 @@
+this developer is mad because Computer science course made him mad for being mad in mad course
